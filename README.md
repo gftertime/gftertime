@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gftertime
-- 👀 I’m interested in everything that is about coding also discord addicted
-- 🌱 I’m currently learning c++
+- 👀 I’m interested in everything that is about coding
+- 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me: DM me on discord My username is gfter_time | DEAD#3571 
+- 📫 How to reach me: i don't know
